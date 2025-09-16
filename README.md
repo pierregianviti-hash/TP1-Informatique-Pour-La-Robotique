@@ -1,3 +1,3 @@
-Groupe 1 
-/ DUPARC Maéline
-/ GIANVITI Pierre
+**Groupe 1**\
+DUPARC Maéline\
+GIANVITI Pierre
